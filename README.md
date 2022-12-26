@@ -1,6 +1,6 @@
-** Resume of Keith V. Christian, December 2022 **
+**Resume of Keith V. Christian, December 2022**
 
-** Keith Resides in the Denver, Co metro area **
+**Keith Resides in the Denver, Co metro area**
 
 keithchristian@yahoo.com
 
