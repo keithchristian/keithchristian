@@ -1,6 +1,4 @@
-*Resume of Keith Christian*
-
-**Keith V. Christian**
+** Resume of Keith V. Christian, December 2022**
 
 keithchristian@yahoo.com
 
